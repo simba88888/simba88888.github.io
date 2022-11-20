@@ -13,7 +13,7 @@
 ------
 :heart: :point_right: 【本站源码可分享】: 请联系<simba.business@qq.com>。
 ------
-:heart: :point_right:【重要提醒】: 收藏本页面(宅客解析)，避免迷路！
+:heart: :point_right: 【重要提醒】: 收藏本页面(宅客解析)，避免迷路！
 ------
 最新电影最新电视剧在线免费观看，VIP视频免费看，在线解析，vip视频解析，优酷vip解析，爱奇艺vip解析，腾讯vip解析，乐视vip解析，全网影视vip，芒果vip解析方便广大用户VIP视频服务，
 ==

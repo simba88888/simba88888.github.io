@@ -3,11 +3,11 @@ heart: :point_right:宅客解析 地址发布:
 ==
 :heart: :point_right: 【宅客解析VIP视频免费看】 ：[国内地址](https://github.com/Yangbinj/vipvideo)
 ------
-:heart: :point_right: 【宅客解析VIP视频免费看】 ：[国内地址](https://github.com/Yangbinj/vipvideo)
-------
 :heart: :point_right: 【加微信群技术交流】 ：[技术交流微信群](https://docs.qq.com/doc/DRndwdE1ubFhyWkRr)
 ------
 :heart: :point_right: 【加微信群追剧影视交流】 ：[追剧达人交流微信群](https://docs.qq.com/doc/DRndwdE1ubFhyWkRr)
+------
+:heart: :point_right: 【宅客解析VIP视频免费看】 ：[国外地址](https://github.com/Yangbinj/vipvideo)
 ------
 :heart: :point_right: 本站视频源于互联网视频网站，仅供学习交流。仅供学习使用，请勿商业用途。
 ------
